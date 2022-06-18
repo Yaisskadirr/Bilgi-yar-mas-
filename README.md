@@ -1,1 +1,1 @@
-# Bilgi-yar-mas-
+# Bilgi-yaris-masi-
